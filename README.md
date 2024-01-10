@@ -6,5 +6,4 @@ My  Father Name
 
 My Class Friend Name
 
-my Nijnjasdfersgvavh,
-bbjkdcvserilghsethg
+my three class
